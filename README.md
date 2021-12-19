@@ -2,7 +2,7 @@
 - 👀 I’m interested in plaing fortnite
 - 🌱 I’m currently learning plaing fortnite 
 - 💞️ I’m looking to collaborate on fortnite
-- 📫 How to reach me dortnite name:Rythm#3606
+- 📫 How to reach me fortnite name:Rythm#3606
 
 <!---
 Rythm3606/Rythm3606 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
